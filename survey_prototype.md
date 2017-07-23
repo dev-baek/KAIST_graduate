@@ -6,4 +6,4 @@
 
 ### 서베이 프로토타입핑 결과
 
-![Alt text](http://www.clipular.com/c/4888491893981184.png?k=-KXXWftSCXfHQ4AKqGxVu5Q7kAE)
+![Alt text](http://www.clipular.com/c/5331712788922368.png?k=nawC_RrRE0u_sUUH9KYdPoWKdI8)
